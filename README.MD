@@ -1,1 +1,1 @@
-Society 3.3.4: Freaky Boys Entertainment
+Society 3.3.5: Society LLC Gaming Compound
