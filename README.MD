@@ -1,1 +1,1 @@
-Society 4.0.5: I think I'm Makhaha
+Society 4.0.6: gun or ball gaming
