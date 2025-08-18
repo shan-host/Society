@@ -1,1 +1,1 @@
-Society 4.1.9: Mail.com incident
+Society 4.2.0: Society LML (Let Me Laugh)
