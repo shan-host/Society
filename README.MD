@@ -1,1 +1,1 @@
-Society 4.2.1: LMS - Let Me Smile
+Society 4.2.2: Stoned Ape Theory
