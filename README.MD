@@ -1,1 +1,1 @@
-Society 4.2.5: I rest my quesadilla
+Society 4.2.6: Dave New World
