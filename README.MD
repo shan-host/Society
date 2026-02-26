@@ -1,1 +1,1 @@
-Society 4.2.6: Dave New World
+Society 4.2.7: good smileage
