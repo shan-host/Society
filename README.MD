@@ -1,1 +1,1 @@
-Society 4.2.7: good smileage
+Society 4.2.8: Can i take a nug?
