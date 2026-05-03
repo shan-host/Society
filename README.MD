@@ -1,1 +1,1 @@
-Society 4.2.9: the saga of milky ducky
+Society 4.3.0: StinkyGoochie returns
